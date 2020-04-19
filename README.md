@@ -1,0 +1,1 @@
+# Lenovo-Ideapad130-14IKB-Hackintosh-not-perfect-yet-
